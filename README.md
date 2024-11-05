@@ -2,7 +2,7 @@
 
 **`Full-stack Web Developer and Software Engineering Student`**
 
-As a dedicated web developer and a former athlete, I bring a hardworking attitude, commitment and discipline to excel at anything I do. I’m someone people can count on to meet deadlines and exceed expectations. Motivated by challenges, I’m always eager to expand my skill set and learn something new. Let’s connect and create something extraordinary together!
+A hardworking, adaptable and highly motivated professional that always strives to become better and exceed expectations.
 
 ---
 
